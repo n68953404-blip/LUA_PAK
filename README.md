@@ -60,7 +60,7 @@ chmod +x *
 
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 LIFETIME FREE TOOL
-BY @CHEN_TOOL2
+BY @NASIR_VIP TOOL.2
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 HOW TO USE :- https://youtu.be/tVwyg-oMK1g
